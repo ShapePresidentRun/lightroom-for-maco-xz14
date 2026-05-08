@@ -1,4 +1,4 @@
-
+Get the ultimate Lightroom for macOS utility with Lightroom for macOS new Utility: stock-assets-integration & preset-packs. Featuring stock-assets-integration and preset-packs,
 
 
 
